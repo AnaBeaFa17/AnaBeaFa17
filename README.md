@@ -1,7 +1,5 @@
 **Seja bem-vindo (a) por aqui!** 💙💙
 
-![]((https://tenor.com/pt-BR/view/taylor-taylor-swift-taylor-kiss-taylor-swift-kiss-gif-3494935584985962548))
-
 Meu nome é **Ana Beatriz Lima de Faria** =D
 
 - Estou estudando na *Alura*;
